@@ -1,2 +1,1 @@
-# revenge
-Esta es una venganza por no haber realizado el pago... ahora, las espero con la demanda... vengan bien preparadas...
+
